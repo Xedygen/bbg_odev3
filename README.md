@@ -1,1 +1,1 @@
-# bbg_odev3
+# 100 aldım la
